@@ -1,1 +1,0 @@
-# northlazy.github.io
